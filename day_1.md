@@ -14,9 +14,11 @@ During the drive to the beach, my children and my wife didn’t say much, it was
 
 That was it, I was on my own with my thoughts and swimming on top of my streamline that leads me in the right direction.
 
-
+就这样，伴随着我的想法，我独自一人游在正确的方向上。(on top of my streamline是什么意思我不懂，这个streamline是一个什么设备么?)
 
 Within the first 30 minutes, I was back into my routine, keeping a steady pace, stretching my shoulders to glide as much as possible and focusing on my streamline. Already in the first hour, I was reliving the moment I spent on the beach few minutes before, everything happened so fast I wanted to remember and relive some moments that I didn’t have the time to enjoy.
+
+在开始的30分钟里，我回到日常的节奏中，保持稳定的速率，舒展肩膀以便更多的划水，集中精力保持流线型。在最初的一小时里，我回顾了刚才在岸上的情景，一切发生的太匆匆了，我试图回忆并享受当时错过的点点滴滴。
 
 In the second hour, the water temperature started to drop and it became uncomfortable as the day progressed.
 
@@ -24,15 +26,15 @@ In the second hour, the water temperature started to drop and it became uncomfor
 
 In the fifth hour, my support RHIB got a call from Seeker to let us know that they had spotted a 5 foot long shark. They were sending out our medic Maks on a kayak to bring us our shark protection device. Before Maks got to us I saw a 3 foot long shark swimming right below me in the opposite direction. I stopped to look around but couldn’t see anything, I had limited visibility. Paul and Ty who were on the RHIB asked if I wanted to get out of the water but I decided it was safe to continue swimming so I just did.
 
-在第五个小时，我的支持船接到了防鲨船上的电话，让我们知道他们发现了一条5英尺长的鲨鱼。他们已经让我们的医生Maks带着防鲨设备坐着皮划艇过来了。在Maks到达我们这边以前，我看到了一条3英尺长的鲨鱼从我的身下相反的方向游过。我停下来观察，没有发现什么情况，我视力受限。Paul和Ty在支持船上问我要不要上船，但是我认为没什么问题，就决定继续游泳。
+在第五个小时，我的支持充气艇接到了防鲨船上的电话，让我们知道他们发现了一条5英尺长的鲨鱼。他们已经让我们的医生Maks带着防鲨设备坐着皮划艇过来了。在Maks到达我们这边以前，我看到了一条3英尺长的鲨鱼从我的身下相反的方向游过。我停下来观察，没有发现什么情况，我视力受限。Paul和Ty在支持船上问我要不要上船，但是我认为没什么问题，就决定继续游泳。
 
 Few moments later Maks joined us with the kayak and asked me few questions to access my state, he took my pulse and felt my hands and decide that I was getting cold and asked me to stop, he said “Ben it was a good day, you swam for 6 hours, it is good start, let’s not over do it”.
 
-一会儿，Maks坐着皮划艇到了，他问了我几个问题以便确认我的状况，他测了我的脉并感受了我的双手，认为我正在变冷并要求我现在停止，他说：“Ben，今天是非常好的一天，你游了6个小时，这是一个好的开始，我们不要过犹不及。”
+一会儿，Maks坐着皮划艇到了，他问了我几个问题以便确认我的状况，他测了我的脉搏并感受了我的双手，认为我正在变冷并要求我现在停止，他说：“Ben，今天是非常好的一天，你游了6个小时，这是一个好的开始，我们不要过犹不及。”
 
 So I jumped in the RHIB and got back to Seeker to start my first night onboard. My stomach was a little upset and I could not hold much food at the beginning but it got better through out the night and wake up few times for a night snake.
 
-我上了支持船然后又到了防鲨船，开始了我
+我上了充气艇然后又到了防鲨船上，在那里开始了我的第一夜。我有些反胃，刚开始的时候我没有吃太多东西，但是一会就好多了，夜里我醒了几次，吃了一些夜宵。
 
 Tomorrow will be another day.
 
