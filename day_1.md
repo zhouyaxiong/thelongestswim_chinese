@@ -43,9 +43,14 @@ Tomorrow will be another day.
 Ben
 
 Start position: 35°43.220N
+
 Stop position: 140°52.208E
+
 Start time: 09:00am local / 00:00 UTC
+
 Stop time: 03:00pm local / 06:04 UTC
+
 Duration: 06h04
+
 Miles covered: approx 9.6nm
 
